@@ -1,2 +1,0 @@
-# Jagadeesh.-M
-Jagadeesh creator
